@@ -1,0 +1,1 @@
+# Anki-Ascension-Deck-planner-Pro
